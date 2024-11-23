@@ -1,0 +1,1 @@
+# IA-Generativa-e-Mem-ria-Coletiva
